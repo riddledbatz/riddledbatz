@@ -27,7 +27,7 @@
 
 
  my favorite batman character overall has to be the riddler , i love all versions of him , all adaptaitions, any reprisentation of edward nygma / nashton ! along with the many year long batman 
-           intrest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
+           interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
 
 
  also currently HEAVILY fixated on prince gumball!!! eek love him hes so cute , 
