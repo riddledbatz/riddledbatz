@@ -5,7 +5,9 @@
 
  
 ![image](https://github.com/user-attachments/assets/cd96feeb-7f7b-4291-9840-21a551f969b2)
- [   ! ;; hello !!!!!!!!!  -----   welcome to a short intro / about me  . . if you're reading this you've probably stumbled upon me on ponytown!  
+ [   ! ;; hello !!!!!!!!!  -----   welcome to a short intro / about me  . . if you're reading this you've probably stumbled upon me on ponytown!  ]]
+
+ [  >> best viewed on pc ! << ]
 
  ![image](https://github.com/user-attachments/assets/3a74c869-ddfd-40e3-84e9-55a714c492cd)              ![image](https://github.com/user-attachments/assets/4cf7259d-e126-4b75-824e-430daa662189)
 
