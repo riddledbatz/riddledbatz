@@ -17,7 +17,7 @@
 
   i go by jasper OR edward !!  he / him ONLY. ..I HAVE THE MOST LOVELY BOYFRIEND EVER HES SO CUTE !!!! I LOVE YOU JON!!! I LOVE YOU I LOVE YOU !!!!!!!!!!!  !
 
-![image](https://github.com/user-attachments/assets/31d5d371-dbad-4fcb-a808-8bdb05f1dca9)   << -- me and my love <33
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
  i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
