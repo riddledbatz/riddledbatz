@@ -21,7 +21,7 @@
 
 
  i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
-   also i am a big fan of adventure time  /  fionna and cake  ,  bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , and paul dano media !!  ![image](https://github.com/user-attachments/assets/6be45d83-9fb7-4233-845a-d966b2a8b45a)
+   also i am a big fan of adventure time  /  fionna and cake  , harry potter media,  bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , and paul dano media !!  ![image](https://github.com/user-attachments/assets/6be45d83-9fb7-4233-845a-d966b2a8b45a)
 
 
 
@@ -34,7 +34,7 @@
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
 
 
- also currently HEAVILY fixated on prince gumball!!! eek thats me trust !!!!!!! . . , 
+ also currently HEAVILY fixated on prince gumball , and wolfstar [remus lupin and sirius black] <33!!
 
 
 
