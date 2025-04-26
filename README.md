@@ -23,7 +23,7 @@
  i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
    also i am a big fan of adventure time  /  fionna and cake  , harry potter media,  bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , and paul dano media !!  ![image](https://github.com/user-attachments/assets/6be45d83-9fb7-4233-845a-d966b2a8b45a)
 
-
+!! TO BE VERY CLEAR . I DO NOT WELCOME JKR SUPPORTERS, NOR DO I SUPPORT JKR. PLEASSE BLOCK ME OR JUST DNI IF YOU SUPPORT HER !!
 
 ![image](https://github.com/user-attachments/assets/79b7ef81-6ac6-4d58-89f4-b8d56160688d)
 
