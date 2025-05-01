@@ -49,7 +49,7 @@
 ❔                   brief dni list   !!  ;;
 
 basic usual stuff ... [ racists , homophobic people , transphobes , ect ]
-captain howdie / ivorycest supporters, .. you guys are so weird.
+captain howdie / ivorycest supporters, .. you guys are so weird.   !! PROSHIP, HEAAAVVYY DNI. 
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
 
