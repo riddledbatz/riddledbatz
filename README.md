@@ -33,7 +33,7 @@
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
 
 
- also currently HEAVILY fixated on prince gumball , and wolfstar [remus lupin and sirius black] <33!!
+ >> main fixations at the moment are ; Adventure time , Harry potter , IT , and The Big Bang Theory << ^_^
 
 
 
