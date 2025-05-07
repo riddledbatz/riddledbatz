@@ -1,6 +1,5 @@
 
-#  > > hello, dearest gotham  : )  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riddledatz)
-
+#  > > hello, dearest gotham  : ) 
 
 
  
