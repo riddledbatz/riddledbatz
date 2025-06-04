@@ -1,5 +1,5 @@
 
-#  > > hello, dearest gotham  : ) 
+#  > > hello, dearest gotham  :- ) 
 
 
  
@@ -14,13 +14,13 @@
 
    , >> a bit about me  !- >>
 
-  i go by jasper OR edward !!  he / him ONLY. ..I HAVE THE MOST LOVELY BOYFRIEND EVER HES SO CUTE !!!! I LOVE YOU JON!!! I LOVE YOU I LOVE YOU !!!!!!!!!!!  !
+  i go by edward !! . ..I HAVE THE MOST LOVELY BOYFRIEND EVER HES SO CUTE !!!! I LOVE YOU JON!!! I LOVE YOU I LOVE YOU !!!!!!!!!!!  !
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
  i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
-   also i am a big fan of adventure time  /  fionna and cake  , harry potter media,  bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , and paul dano media !!  ![image](https://github.com/user-attachments/assets/6be45d83-9fb7-4233-845a-d966b2a8b45a)
+   also i am a big fan of adventure time  /  fionna and cake  , harry potter media, falsettos , monster high , bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , and paul dano media !!  ![image](https://github.com/user-attachments/assets/6be45d83-9fb7-4233-845a-d966b2a8b45a)
 
 !! TO BE VERY CLEAR . I DO NOT WELCOME JKR SUPPORTERS, NOR DO I SUPPORT JKR. PLEASSE BLOCK ME OR JUST DNI IF YOU SUPPORT HER !!
 
@@ -33,7 +33,7 @@
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
 
 
- >> main fixations at the moment are ; Adventure time , Harry potter , IT , and The Big Bang Theory << ^_^
+ >> main fixations at the moment  ;  Falsettos , IT , and The Big Bang Theory << ^_^   anndd duuhh ofc batman ,, 
 
 
 
@@ -48,7 +48,7 @@
 ❔                   brief dni list   !!  ;;
 
 basic usual stuff ... [ racists , homophobic people , transphobes , ect ]
-captain howdie / ivorycest supporters, .. you guys are so weird.   !! PROSHIP, HEAAAVVYY DNI. 
+captain howdie / ivorycest supporters, .. you guys are so weird.   !! PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. 
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
 
