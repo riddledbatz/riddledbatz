@@ -54,7 +54,7 @@ adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , f
 
 
  my favorite batman character overall has to be the riddler , i love all versions of him , all adaptaitions, any reprisentation of edward nygma / nashton ! along with the many year long batman 
-           interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
+           interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
 
 
 updated 7/28/25 -> main fixations at the moment  ;  Falsettos , Saw , and wicked << ^_^   anndd duuhh ofc batman ,, 
