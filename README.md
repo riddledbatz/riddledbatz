@@ -57,7 +57,7 @@ adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , f
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !
 
 
-updated 7/28/25 -> main fixations at the moment  ;  Falsettos , Saw , and << ^_^   anndd duuhh ofc batman ,, 
+updated 7/28/25 -> main fixations at the moment  ;  Falsettos , Saw , and wicked << ^_^   anndd duuhh ofc batman ,, 
 
 
 
