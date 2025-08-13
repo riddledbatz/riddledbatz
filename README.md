@@ -24,9 +24,9 @@
 
    , >> a bit about me  !- >>
 
-  i go by edward !! . pronouns pagee has a lot more about that !  ii am a fictkin !! doubles ,,,,,,,,, iwc pleaase ^_^ .
+  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwc / whatever my page says pleaase ^_^ . moore about that on my pronouns page if you wanna check it out its linked !! hehe
   
-  ︵︵︵ I HAVE THE MOST GORGEOUS BOYFRIEND EVER !!!!!! HII JON!!HIIHII ! I LOVE YOU !! I LOVE YOU !!  :3 mmyy best friend ever and thhe best partner a boy could ask for hhe is my world and i tend to bring it up a lot ..ggeulp ILOVE HIM WITH ALL MY HEART !! ILOOVE HIMSO MUCUH
+  ︵︵︵ I HAVE THE MOST GORGEOUS BOYFRIEND EVER !!!!!! HII JON!!HIIHII ! I LOVE YOU !! I LOVE YOU !!  :3 mmyy best friend ever and thhe best partner a boy could ask for hhe is my world and i tend to bring it up a lot ..ggeulp ILOVE HIM WITH ALL MY HEART !! ILOOVE HIMSO MUCUH  ILOVE YOU EERIE ^_~
 
   ╭─────────────────────────────────────────╮
   
@@ -70,7 +70,7 @@ updated 7/28/25 -> main fixations at the moment  ;  Falsettos , Saw , and wicked
 
                    brief dni list   !!  ;;
 
-basic usual stuff ... [ racists , homophobic people , transphobes , ect ]
+basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION . MOST OF YOU ARE GENUINELY SO FUCKING GROSS AND MAKE ME UNCOMFY .
 captain howdie / ivorycest supporters, .. you guys are so weird.   !! PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. 
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
