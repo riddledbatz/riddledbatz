@@ -2,23 +2,25 @@
 
 
 
+ > > hello, dearest gotham
 
-#  > > hello, dearest gotham  :- ) 
-
-──────────﹒????﹒﹒───────────﹒???﹒﹒───────────﹒??﹒﹒───────────﹒?﹒﹒─
-─﹒﹒﹒──────────
-
- 
-![image](https://github.com/user-attachments/assets/cd96feeb-7f7b-4291-9840-21a551f969b2)
-     .                      ‿                               :   . . if you're reading this you've probably stumbled upon me on ponytown!  
-
- [  >> best viewed on pc ! << ]
-
-
-
+──────────﹒????﹒  >> best viewed on pc ! <<
 
 
  ![image](https://github.com/user-attachments/assets/3a74c869-ddfd-40e3-84e9-55a714c492cd)              ![image](https://github.com/user-attachments/assets/4cf7259d-e126-4b75-824e-430daa662189)
+
+
+ 
+![image](https://github.com/user-attachments/assets/cd96feeb-7f7b-4291-9840-21a551f969b2)
+   . . if you're reading this you've probably stumbled upon me on ponytown!  
+
+ 
+
+
+
+
+
+
 
 
 
@@ -35,7 +37,7 @@
 
   ╰─────────────────────────────────────────╯
 
-︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
+
 ‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧
 
 i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
@@ -62,7 +64,7 @@ updated 7/28/25 -> main fixations at the moment  ;  Falsettos , Saw , and wicked
 
 
 ‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧‧ ![image](https://github.com/user-attachments/assets/79b7ef81-6ac6-4d58-89f4-b8d56160688d)
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
 
 
  --- >> [ please keep in mind i do block / hide freely !! i will not hesitate if you are a WEIRDO . << ---  
