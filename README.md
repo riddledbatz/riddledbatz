@@ -1,12 +1,12 @@
-════════════════════════════════════════════════════════════════════════
+<img width="400" height="41" alt="486518896-60b36874-20d3-4823-abe7-f706740d5f18" src="https://github.com/user-attachments/assets/f5a5bd73-c369-4f7c-bbea-f96c35f11909" /><img width="400" height="41" alt="486518896-60b36874-20d3-4823-abe7-f706740d5f18" src="https://github.com/user-attachments/assets/f5a5bd73-c369-4f7c-bbea-f96c35f11909" />
 
 
 
- > > hello, dearest gotham
+>hello, dearest gotham
 
 ──────────﹒????﹒  >> best viewed on pc ! <<
 
- ![image](https://github.com/user-attachments/assets/3a74c869-ddfd-40e3-84e9-55a714c492cd)  . . if you're reading this you've probably stumbled upon me on ponytown!  
+ ![image](https://github.com/user-attachments/assets/3a74c869-ddfd-40e3-84e9-55a714c492cd) ![image](https://github.com/user-attachments/assets/4cf7259d-e126-4b75-824e-430daa662189) . . if you're reading this you've probably stumbled upon me on ponytown!  
 
 
  
@@ -24,8 +24,7 @@
    , >> a bit about me  !- >>
 
 
-<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/a6a49bca-41e0-47f2-90fb-a532019a44c1" /><img width="31" height="22" alt="tumblr_1cbf33407f914c3116575c7c4e61202a_184b81f8_75" src="https://github.com/user-attachments/assets/8ed71fa1-0bc4-492e-b7a3-ece48c3f4a58" /><img width="31" height="22" alt="tumblr_5f269efcad78c90926a923503911898b_f8d71cee_75" src="https://github.com/user-attachments/assets/4165a6f8-a9bc-4c66-99ae-ac4258fc5682" />
-
+<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/a6a49bca-41e0-47f2-90fb-a532019a44c1" /><img width="31" height="22" alt="tumblr_1cbf33407f914c3116575c7c4e61202a_184b81f8_75" src="https://github.com/user-attachments/assets/8ed71fa1-0bc4-492e-b7a3-ece48c3f4a58" />
 
 
 ::  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwc / whatever my page says pleaase ^_^ . moore about that on my pronouns page if you wanna check it out its linked !! hehe
@@ -109,4 +108,6 @@ ilovemypartnersomuchheissogross .   ->
 
 <img width="736" height="390" alt="1" src="https://github.com/user-attachments/assets/c4ed626f-9d47-4ab5-b1ba-be4ce6dc72c3" />
 <img width="560" height="359" alt="1" src="https://github.com/user-attachments/assets/f6a7dae8-d1d9-4bed-86a3-4ccd4b9d96d2" />
+<img width="775" height="483" alt="750bfc3b-8560-489d-9153-4b9202838c98" src="https://github.com/user-attachments/assets/1114b364-23d4-4e5d-a5f6-ed7d6facc189" />
+
 
