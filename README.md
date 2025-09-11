@@ -31,7 +31,7 @@
 
 
 
-::  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwc / whatever my page says pleaase ^_^ . moore about that on my pronouns page if you wanna check it out its linked !! hehe
+::  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwvec or dni /lh. moore about that on my pronouns page if you wanna check it out its linked !! hehe
  
   
   ![tumblr_534ec8690186cd818e466d657ad5b958_2ad3a86d_250](https://github.com/user-attachments/assets/5d6feba1-bc05-479c-8d58-f48166983c2f)![tumblr_ad2662bd643afc8c5bff080e81f93d87_a12919c0_250](https://github.com/user-attachments/assets/6126476c-9adf-4c5c-87a1-d3db9f39f00e)![tumblr_7e543bd5cb0d2d0d701e3e6396957bb3_d55d6ce8_250](https://github.com/user-attachments/assets/36aff699-5189-4d86-8609-7b271edfdfcb)![tumblr_f9c9266c4d61752537e4a780d02d48f7_ce1d1777_250](https://github.com/user-attachments/assets/cfa34f25-dd5c-4213-bc3e-835e4553e63b)![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
@@ -66,7 +66,7 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
                      other things i enjoy a lot ! :
 
     
-adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , falsettos , monster high , bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , ranfren , epic the musical , bg3 , reanimator , mlp , and paul dano media !! [ annd much much more ]  !
+adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , falsettos , monster high , bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , ranfren , epic the musical , bg3 , reanimator , mlp , paul dano media , some marvel characters, skyrim, soulsborne stuff, aquabats , werewolf media, wicked, the saw franchise, phantom of the paradise, psychonauts, homestuck, and so much more ehehe.. ask me !!! i like many more things but cannot think of more to list at the moment !! i probably know it and or enjoy it 
 
 !! TO BE VERY CLEAR . I DO NOT WELCOME JKR SUPPORTERS, NOR DO I SUPPORT JKR. PLEASSE BLOCK ME OR JUST DNI IF YOU SUPPORT HER !!
 
@@ -93,10 +93,16 @@ updated 9/7/25 -> main fixations at the moment  ;  stampys lovely world , Saw , 
  --- >> [ please keep in mind i do block / hide freely !! i will not hesitate if you are a WEIRDO . << ---  
 
 
-                   brief dni list   !!  ;;
+                   byi   !!  
+please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no ! 
 
-basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION . MOST OF YOU ARE GENUINELY SO FUCKING GROSS AND MAKE ME UNCOMFY .
-captain howdie / ivorycest supporters, .. you guys are so weird.   !! PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. 
+ 
+
+
+                   brief dni list   !!  
+
+basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION or just dni at all !! . no hard feelings but erm ..ueah im uncomfy with riddlebat  .
+captain howdie / ivorycest supporters, .. you guys are so weird.   !! maga peopelf.. i doubt pony town has that but to be safe ,, PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. <<--  PLEASE DO  NOT FOLLOW ME !!!!!!!! can not believe ihave to say that llol . 
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
 
@@ -108,7 +114,7 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
 
 
 ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞
-ilovemypartnersomuchheissogross .   ->
+ilovemypartnersomuchtheyaresogross .   ->
 
 <img width="736" height="390" alt="1" src="https://github.com/user-attachments/assets/c4ed626f-9d47-4ab5-b1ba-be4ce6dc72c3" />
 <img width="560" height="359" alt="1" src="https://github.com/user-attachments/assets/f6a7dae8-d1d9-4bed-86a3-4ccd4b9d96d2" />
