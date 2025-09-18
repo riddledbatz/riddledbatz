@@ -24,7 +24,7 @@
    , >> a bit about me  !- >>
 
 
-<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/a6a49bca-41e0-47f2-90fb-a532019a44c1" /><img width="31" height="22" alt="tumblr_1cbf33407f914c3116575c7c4e61202a_184b81f8_75" src="https://github.com/user-attachments/assets/8ed71fa1-0bc4-492e-b7a3-ece48c3f4a58" />![68747470733a2f2f692e706f7374696d672e63632f674a57343359674e2f70757070792e676966](https://github.com/user-attachments/assets/b9f1058d-4d2f-441e-b515-d1ad1fc6d99a)![68747470733a2f2f692e706f7374696d672e63632f57335a4c316268382f70726f646967792e676966](https://github.com/user-attachments/assets/d3ed333e-36b0-4142-a0a7-115ba1d73aa9)![68747470733a2f2f692e706f7374696d672e63632f4d4b5654467135792f6d7573652e676966](https://github.com/user-attachments/assets/193fe42b-1f6b-40a2-b152-6c1541b6dcf6)![68747470733a2f2f692e706f7374696d672e63632f473274594d70474a2f6d6172726965642e676966](https://github.com/user-attachments/assets/2fbe2fdf-763e-4aec-b4c0-02dcf2763d13)
+<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/a6a49bca-41e0-47f2-90fb-a532019a44c1" /><img width="31" height="22" alt="tumblr_1cbf33407f914c3116575c7c4e61202a_184b81f8_75" src="https://github.com/user-attachments/assets/8ed71fa1-0bc4-492e-b7a3-ece48c3f4a58" />![68747470733a2f2f692e706f7374696d672e63632f674a57343359674e2f70757070792e676966](https://github.com/user-attachments/assets/b9f1058d-4d2f-441e-b515-d1ad1fc6d99a)![68747470733a2f2f692e706f7374696d672e63632f57335a4c316268382f70726f646967792e676966](https://github.com/user-attachments/assets/d3ed333e-36b0-4142-a0a7-115ba1d73aa9)![68747470733a2f2f692e706f7374696d672e63632f4d4b5654467135792f6d7573652e676966](https://github.com/user-attachments/assets/193fe42b-1f6b-40a2-b152-6c1541b6dcf6)![68747470733a2f2f692e706f7374696d672e63632f473274594d70474a2f6d6172726965642e676966](https://github.com/user-attachments/assets/2fbe2fdf-763e-4aec-b4c0-02dcf2763d13)![tumblr_611656963541ca18a8b70dd93a6e0e67_461e7333_100](https://github.com/user-attachments/assets/7f89123e-b034-4b4f-9db7-2dad27b72d1d)
 
 
 
@@ -86,7 +86,7 @@ updated 9/7/25 -> main fixations at the moment  ;  stampys lovely world , Saw , 
 
 
 
-  ![tumblr_611656963541ca18a8b70dd93a6e0e67_461e7333_100](https://github.com/user-attachments/assets/7f89123e-b034-4b4f-9db7-2dad27b72d1d)
+  
 
 
 
