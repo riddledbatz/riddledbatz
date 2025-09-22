@@ -78,7 +78,7 @@ adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , f
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
 
 
-updated 9/7/25 -> main fixations at the moment  ;  stampys lovely world , Saw , the dork squad [ crane , tetch and nygma ] , wicked and the office << ^_^   anndd duuhh ofc batman ,, 
+updated 9/21/25 -> main fixations at the moment  ;  stampys lovely world , our flag means death , wicked and the office << ^_^   anndd duuhh ofc batman ,, 
 
 
 <img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/2bc3dfbb-3f10-4506-bc2c-329a26d58e86" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/9986c280-d8e7-415a-94ce-ef238cf4f0e8" />
