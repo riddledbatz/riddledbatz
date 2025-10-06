@@ -38,9 +38,6 @@
 
 
 
-<img width="736" height="390" alt="1" src="https://github.com/user-attachments/assets/19b59fe1-6073-4861-977f-8c63aef2b910" />  <-by m1crocutz on twt
-
-
 
   ︵ I HAVE THE MOST GORGEOUS BOYFRIEND EVER !!!!!! HII JON!!HIIHII ! I LOVE YOU !! I LOVE YOU !!  :3 mmyy best friend ever and thhe best partner a boy could ask for hhe is my world and i tend to bring it up a lot ..ggeulp ILOVE HIM WITH ALL MY HEART !! ILOOVE HIMSO MUCUH  ILOVE YOU EERIE ^_~
 
