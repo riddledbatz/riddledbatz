@@ -102,7 +102,7 @@ please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,
                    brief dni list   !!  
 
 basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION or just dni at all !! . no hard feelings but erm ..ueah im uncomfy with riddlebat  .
-captain howdie / ivorycest supporters, .. you guys are so weird.   !! maga peopelf.. i doubt pony town has that but to be safe ,, PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. <<--  PLEASE DO  NOT FOLLOW ME !!!!!!!! can not believe ihave to say that llol . 
+captain howdie / ivorycest supporters, .. you guys are so weird.   !! maga peopelf.. i doubt pony town has that but to be safe ,, PROSHIP, DARKSHIP ANYTHING OF THAT MATTER HEAAAVVYY DNI. <<--  PLEASE DO  NOT FOLLOW ME !!!!!!!! can not believe ihave to say that llol .    kindest wway possible pples if you yumeship with any riddler please dni !! i am him in my mind and it makes me quite unncomfy guh .
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
 
