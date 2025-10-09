@@ -91,7 +91,7 @@ updated 9/21/25 -> main fixations at the moment  ;  stampys lovely world , our f
 
 
                    byi   !!  
-please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no ! 
+please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm ollie please for the love of god remove me from your github . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no ! 
 
  
 
