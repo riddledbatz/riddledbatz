@@ -31,7 +31,7 @@
 
 
 
-::  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwvec or dni /lh. moore about that on my pronouns page if you wanna check it out its linked !! hehe
+::  i go by edward !! .  ii am a fictkin !! doubles ,,,,,,,,, iwvec or dni /lh. moore about that on my pronouns page if you wanna check it out its linked !! hehe  
  
   
   ![tumblr_534ec8690186cd818e466d657ad5b958_2ad3a86d_250](https://github.com/user-attachments/assets/5d6feba1-bc05-479c-8d58-f48166983c2f)![tumblr_ad2662bd643afc8c5bff080e81f93d87_a12919c0_250](https://github.com/user-attachments/assets/6126476c-9adf-4c5c-87a1-d3db9f39f00e)![tumblr_7e543bd5cb0d2d0d701e3e6396957bb3_d55d6ce8_250](https://github.com/user-attachments/assets/36aff699-5189-4d86-8609-7b271edfdfcb)![tumblr_f9c9266c4d61752537e4a780d02d48f7_ce1d1777_250](https://github.com/user-attachments/assets/cfa34f25-dd5c-4213-bc3e-835e4553e63b)![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
@@ -91,7 +91,7 @@ updated 9/21/25 -> main fixations at the moment  ;  stampys lovely world , our f
 
 
                    byi   !!  
-please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm  . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no ! 
+please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm  . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no !         .side note , if i was seen by you sitting with ollie [ that one ......to say the least gross rdr person ] PLEASE take note that i no longer assosiate or speak with them. ive been told and shown a lot of evidence against them , and want to make it very VERY clear ,  i do not support nor do i encourage their behavior and or past behavior and would like nothing to do with them.    for those who dont know what im talking about  --> https://ollie59845958.straw.page/
 
  
 
