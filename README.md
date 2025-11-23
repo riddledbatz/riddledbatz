@@ -111,10 +111,4 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
 
 
 ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞
-ilovemypartnersomuchtheyaresogross .   ->
-
-<img width="736" height="390" alt="1" src="https://github.com/user-attachments/assets/c4ed626f-9d47-4ab5-b1ba-be4ce6dc72c3" />
-<img width="560" height="359" alt="1" src="https://github.com/user-attachments/assets/f6a7dae8-d1d9-4bed-86a3-4ccd4b9d96d2" />
-<img width="775" height="483" alt="750bfc3b-8560-489d-9153-4b9202838c98" src="https://github.com/user-attachments/assets/1114b364-23d4-4e5d-a5f6-ed7d6facc189" />
-
 
