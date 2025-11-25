@@ -45,7 +45,7 @@
 
 
 
-　　  　　 <img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />        
+<img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />        
 i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
 
 
@@ -68,7 +68,7 @@ adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , f
 updated 10/18/25 -> main fixations at the moment  ;  adventure time , our flag means death , avenue q , thrill me the musical and the office << ^_^   anndd duuhh ofc batman ,, 
 
 
-　　  　　 <img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />   
+<img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />   
 
 
 
