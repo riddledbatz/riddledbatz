@@ -105,7 +105,5 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
 
 
 
-hi also short thing igot a message on atabook saying i deleted something to avoid accountability wheni seriously have not if youwant to talk abou t something please come to me instead of anonymously posting on a guestbook id prefer we handled it instead of you just posting there , if i have done something wrong why make it a public issue?? that just irks me ??. anyway yeah if you have something to ask or tell me please just come to me about it and ask for a social or something , atabook isnt going to get you anywhere and id prefer i atleast get to explain myself and most of all KNOW what i did wrong 
-
 ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞
 
