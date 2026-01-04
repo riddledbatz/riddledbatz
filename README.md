@@ -7,7 +7,7 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
 
 
 
-
+　 　　  　　 　　  　　 　[ata](https://riddledbatz.atabook.org/)　 　　  　[straw](https://amateurriddles.straw.page/)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
 
 
 
