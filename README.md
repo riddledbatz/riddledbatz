@@ -1,4 +1,4 @@
-
+wow edward finally updates his readme who cheered 
 
 
 t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r̲e̲t̲t̲y̲'̲ ̲b̲e̲c̲a̲u̲s̲e̲ ̲i̲t̲ ̲i̲s̲ ̲m̲y̲ ̲m̲a̲i̲n̲ ̲!̲ ̲a̲n̲d̲ ̲i̲ ̲t̲r̲y̲ ̲t̲o̲ ̲g̲i̲v̲e̲ ̲m̲o̲s̲t̲ ̲i̲n̲f̲o̲ ̲h̲e̲r̲e̲ ̲:̲-̲)̲ ̲i̲f̲ ̲y̲o̲u̲ ̲w̲a̲n̲t̲ ̲t̲o̲ ̲s̲e̲e̲ ̲p̲r̲e̲t̲t̲i̲e̲r̲ ̲r̲e̲a̲d̲m̲e̲ ̲s̲ ̲,̲ ̲c̲h̲e̲c̲k̲ ̲o̲u̲t̲ ̲m̲y̲ ̲a̲l̲t̲s̲ ̲!̲
@@ -34,6 +34,8 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
 
 　　  　　 　　　  　　 　　 i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
 
+ my favorite batman character overall has to be the riddler i heavily heavily heavilllyy identify with riddler , i love all versions of him , all adaptaitions, any reprisentation of edward nygma / nashton ! that is me irl  !!  along with the many year long batman 
+           interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
 
 
 　　　  　　 　　　  　　 　　  　 　　  　　 　　　  　　 　　  　<p align="center">
@@ -41,7 +43,9 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
     <summary>other interests !</summary>
 
 
-  adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , falsettos , monster high , bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , ranfren , epic the musical , bg3 , reanimator , mlp , paul dano media , some marvel characters, skyrim, soulsborne stuff, aquabats , werewolf media, wicked, the saw franchise, phantom of the paradise, psychonauts, homestuck, and so much more ehehe.. ask me !!! i like many more things but cannot think of more to list at the moment !! i probably know it and or enjoy it 
+  adventure time  /  fionna and cake  , harry potter media :: MOSTLY ATYD ! :: , falsettos , monster high , bloodborne , dnd , repo! the genetic opera , ghostbusters , the big bang theory , ranfren ,  bg3 , reanimator , mlp , paul dano media , some marvel characters, skyrim, soulsborne stuff, aquabats , werewolf media, wicked, the saw franchise, phantom of the paradise, psychonauts, homestuck, 
+  
+  and so much more ehehe.. ask me !!! i like many more things but cannot think of more to list at the moment !! i probably know it and or enjoy it 
 
 !! TO BE VERY CLEAR . I DO NOT WELCOME JKR SUPPORTERS, NOR DO I SUPPORT JKR. PLEASSE BLOCK ME OR JUST DNI IF YOU SUPPORT HER !!
 
@@ -52,11 +56,6 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
     
 
 
-
-
-
- my favorite batman character overall has to be the riddler i heavily heavily heavilllyy identify with riddler , i love all versions of him , all adaptaitions, any reprisentation of edward nygma / nashton ! that is me irl  !!  along with the many year long batman 
-           interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
 
 
 　　　  　　 　　　  　　 　　  　 　　  　　 　　　  　　 　　  　<p align="center">
@@ -103,9 +102,20 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
 
   ![tumblr_534ec8690186cd818e466d657ad5b958_2ad3a86d_250](https://github.com/user-attachments/assets/5d6feba1-bc05-479c-8d58-f48166983c2f)![tumblr_ad2662bd643afc8c5bff080e81f93d87_a12919c0_250](https://github.com/user-attachments/assets/6126476c-9adf-4c5c-87a1-d3db9f39f00e)![tumblr_7e543bd5cb0d2d0d701e3e6396957bb3_d55d6ce8_250](https://github.com/user-attachments/assets/36aff699-5189-4d86-8609-7b271edfdfcb)![tumblr_f9c9266c4d61752537e4a780d02d48f7_ce1d1777_250](https://github.com/user-attachments/assets/cfa34f25-dd5c-4213-bc3e-835e4553e63b)![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
 
+  <details>
+    <summary>edward lovemail or something</summary>
 
+people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
+ 　　 JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  i loove my spooky
 
+ 　　 MADDOX !!the friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh
+
+ 　　 CORRIN  !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo the elphaba to my glinda and the jake to my albert. ...and and and the t the snape to my remus hi i love you elpehie
+
+ 　　 JG !! sily guy .....  i love you so much ! iiloovooeeoeoeeee you! you are so fun to chat with love you kitty ! you are one of the reasons i look forward to getting online !!!!
+       </details>
+</p>
 
 ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞
 
