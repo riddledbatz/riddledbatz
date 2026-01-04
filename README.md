@@ -32,7 +32,7 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
 
 <img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />        
 
-　　  　　 　　　  　　 　　 i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
+i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years and love love LOOOOVEOEEEE talking about it!!!! please please please if you enjoy batman, chat with me about it !!!!!
 
  my favorite batman character overall has to be the riddler i heavily heavily heavilllyy identify with riddler , i love all versions of him , all adaptaitions, any reprisentation of edward nygma / nashton ! that is me irl  !!  along with the many year long batman 
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
