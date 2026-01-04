@@ -28,7 +28,7 @@ t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r�
 
 　　  　　 　 　　  　　　  　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-
+  ![tumblr_534ec8690186cd818e466d657ad5b958_2ad3a86d_250](https://github.com/user-attachments/assets/5d6feba1-bc05-479c-8d58-f48166983c2f)![tumblr_ad2662bd643afc8c5bff080e81f93d87_a12919c0_250](https://github.com/user-attachments/assets/6126476c-9adf-4c5c-87a1-d3db9f39f00e)![tumblr_7e543bd5cb0d2d0d701e3e6396957bb3_d55d6ce8_250](https://github.com/user-attachments/assets/36aff699-5189-4d86-8609-7b271edfdfcb)![tumblr_f9c9266c4d61752537e4a780d02d48f7_ce1d1777_250](https://github.com/user-attachments/assets/cfa34f25-dd5c-4213-bc3e-835e4553e63b)![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
 
 <img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />        
 
@@ -65,16 +65,14 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
 </p>
 
 
-<img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />   
 
 
 
 
-  
+
+ 　　  　　 　 --- >>  please keep in mind i do block / hide freely !! i will not hesitate if you are a WEIRDO . << ---  
 
 
-
- 　　  　　 　 --- >> [ please keep in mind i do block / hide freely !! i will not hesitate if you are a WEIRDO . << ---  
 
   <details>
     <summary>byi  ,  dni  & int  !</summary>
@@ -100,7 +98,10 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
   </details>
 </p>
 
-  ![tumblr_534ec8690186cd818e466d657ad5b958_2ad3a86d_250](https://github.com/user-attachments/assets/5d6feba1-bc05-479c-8d58-f48166983c2f)![tumblr_ad2662bd643afc8c5bff080e81f93d87_a12919c0_250](https://github.com/user-attachments/assets/6126476c-9adf-4c5c-87a1-d3db9f39f00e)![tumblr_7e543bd5cb0d2d0d701e3e6396957bb3_d55d6ce8_250](https://github.com/user-attachments/assets/36aff699-5189-4d86-8609-7b271edfdfcb)![tumblr_f9c9266c4d61752537e4a780d02d48f7_ce1d1777_250](https://github.com/user-attachments/assets/cfa34f25-dd5c-4213-bc3e-835e4553e63b)![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
+
+
+
+
 
   <details>
     <summary>edward lovemail or something</summary>
@@ -117,5 +118,6 @@ people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
        </details>
 </p>
 
-◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞◟ ͜  ͜ ◞  ᛪ༙ ◟ ͜  ͜ ◞◟ ͜  ͜ ◞
+
+<img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/60b36874-20d3-4823-abe7-f706740d5f18" /><img width="400" height="41" alt="tumblr_046516f6ae9bf40316c2d5d6cee06b8f_776afa1d_400" src="https://github.com/user-attachments/assets/a0c68591-1c4d-47ce-8ba0-fd9ce067e4d3" />        
 
