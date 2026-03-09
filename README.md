@@ -63,7 +63,7 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
 
 　　　  　　 　　　  　　 　　  　 　　  　　 　　　  　　 　　  　<p align="center">
   <details>
-    <summary> main fixations at the moment  ;  updated 1/4/26</summary>  adventure time , our flag means death , thrill me the musical and the office << ^_^   anndd duuhh ofc batman ,,   
+    <summary> main fixations at the moment  ;  updated 3/9/26</summary>   homestuck , our flag means death , thrill me the musical and the office << ^_^   anndd duuhh ofc batman ,,   
                                                                                                                                                         </details>
 </p>
 
