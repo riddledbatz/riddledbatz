@@ -79,15 +79,43 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
   <details>
     <summary>byi  ,  dni  & int  !</summary>
 　　  　　 　　  　　 　　  　　 　　  　　 byi   !!  
-please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !! ex-oomfs  /  friends please iwvec or dni .. u know who u are erm  . i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no !         .side note , if i was seen by you sitting with ollie [ that one ......to say the least gross rdr person ] PLEASE take note that i no longer assosiate or speak with them. ive been told and shown a lot of evidence against them , and want to make it very VERY clear ,  i do not support nor do i encourage their behavior and or past behavior and would like nothing to do with them.    for those who dont know what im talking about  --> https://ollie59845958.straw.page/
+    
+-   please first and most importantly keep in mind my dni boundaries,...coguhcouhg ,, thanks AND i ask refrain from platonic or "joke" flirting with me, as silly as it sounds it makes me and my partner very uncomfortabe ,, so please stray from doing that !!
+    
+-    ex-oomfs  /  friends please iwvec or dni .. u know who u are erm  .
+    
+-    i am often times offtab or just afk !! whisper me and i will trry my best to get back to you ^_^ . c+h is always welcome unless stated otherwise outright . i love to sit with people so do not be shy !! if i am with another person / people , just ask !! if i am ontab , come up to me pls oorr whisper , if im silent i maay be offtab or afk so just whisper if im with another person when you want to sit with me and i will reply yes or no !   
+    
+-    .side note , if i was seen by you sitting with ollie [ that one ......to say the least gross rdr person ] PLEASE take note that i no longer assosiate or speak with them. ive been told and shown a lot of evidence against them , and want to make it very VERY clear ,  i do not support nor do i encourage their behavior and or past behavior and would like nothing to do with them.    for those who dont know what im talking about  --> https://ollie59845958.straw.page/
 
  
+　　  　　 　　  　　 　　  　　 thin ice .. .   !!  
+
+-  ;; fandoms . ..
+-  stranger things
+-  dandys world
+-  roblox ..... forsaken ect .
+-  thooose  batfamily  fans  .
+-  ranfren fans overall
+-  paul dano fans ... i lov e dano but danonation makes me uncomfortable most times taking somethings too far in my past expiriences
+-  sonic fans
+-  OVERALL just the sterotypical " silly autisim !!! merp !!" people. i hate you all you are a problem i stand strongly behind that. just say you like something, not everything is autisim ...god i could go on and on about this  you are all so insufferable . i am diagnosed and you make everything so "watered down" in a way. you arent autistic just because you like sharks or something ok thanks  [i dont at all mean to come off as rude ! i hope i am made clear , andd . my point comes across correctly. ]
+-  joker fans ........ iwill give no explanation , i am just uncomfortable
+  ookok  that is all i think .... i think
+
 
 
 　　  　　 　　  　　 　　  　　 brief dni list   !!  
 
-basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION or just dni at all !! . no hard feelings but erm ..ueah im uncomfy with riddlebat  .
-captain howdie / ivorycest supporters, .. you guys are so weird.   !! maga peopelf.. i doubt pony town has that but to be safe ,, .    kindest wway possible pples if you yumeship with any riddler please dni !! i am him in my mind and it makes me quite unncomfy guh .
+-  basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    
+
+-  RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION or just dni at all !! . no hard feelings but erm ..ueah im uncomfy with riddlebat  .
+
+-  captain howdie / ivorycest supporters, .. you guys are so weird.   !!
+
+-    maga peopelf.. i doubt pony town has that but to be safe ,, .
+
+-  kindest wway possible pples if you yumeship with any riddler please dni !! i am him in my mind and it makes me quite unncomfy guh .
 
   ... thats about all i can really think of.. just treat me how you want to be treated !!! i am not a mean person please dont be rude and we wont have any issues !
 
