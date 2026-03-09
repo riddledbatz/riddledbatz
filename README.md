@@ -100,7 +100,6 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
 -  ranfren fans overall
 -  paul dano fans ... i lov e dano but danonation makes me uncomfortable most times taking somethings too far in my past expiriences
 -  sonic fans
--  OVERALL just the sterotypical " silly autism !!! merp !!" people. i hate you all you are a problem i stand strongly behind that. just say you like something, not everything is autism...god i could go on and on about this  you are all so insufferable . i am diagnosed and you make everything so "watered down" in a way. you arent autistic just because you like sharks or something ok thanks  [i dont at all mean to come off as rude ! i hope i am made clear , andd . my point comes across correctly. ]
 -  joker fans ........ iwill give no explanation , i am just uncomfortable
   ookok  that is all i think .... i think
 
