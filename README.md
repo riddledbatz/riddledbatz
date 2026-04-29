@@ -152,3 +152,4 @@ people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
    
 
+ . .  adding  a  small bit if you are curious ... when my pony says "dniucf"  . . "CF" is  anyone mentioned in my profile . 
