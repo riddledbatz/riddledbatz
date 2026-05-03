@@ -140,13 +140,17 @@ people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
  　　 JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  i loove my spooky
 
- 　　 MADDOX !!the friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh
+ 　　 NICK / HERBERT !!the friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh
 
      　　 JILL ... helllo mandy hi it me boi hai  i love you boi 
 
  　　 CORRIN  !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo the elphaba to my glinda and the jake to my albert. ...and and and the t the snape to my remus hi i love you elpehie
 
  　　 JG !! sily guy .....  i love you so much ! iiloovooeeoeoeeee you! you are so fun to chat with love you kitty ! you are one of the reasons i look forward to getting online !!!!
+
+    TONY !!!!!!! TONY tony tony  . .zev zev zeevv hiii boi  link to my rhett aha us i think :-P LOOOVE YOU im so happy to have yuo in my life
+
+    SEBBB hello val vla val val monsterhigh mootie mooot moot
        </details>
 </p>
 
