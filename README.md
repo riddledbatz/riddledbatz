@@ -153,5 +153,4 @@ people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
    
 
  . .  adding  a  small bit if you are curious ... when my pony says "dniucf"  . . "CF" is  anyone mentioned in my profile . 
- 　　  　　 I LOVE MY PARTY !!!!!!!!!!!!!!!!!!!!!!!!!!!!11 I LOVE YOU ALL SO SO SO SO SO SO SO SO SO SOS O MUCH   
- 　　  　　   　　  　　  　　 　　  <img width="716" height="377" alt="image" src="https://github.com/user-attachments/assets/58e0505b-0737-475a-9a2d-7e02532382bd" />
+
