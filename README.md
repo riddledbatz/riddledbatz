@@ -42,8 +42,8 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
            interest  ,, riddler has been my main fixation for so very long now !!! pleaaasseee talk about riddler to me ... or let me yap i loveee to talk !  that is me i am him !!! haha ! ^_^ ilove to chat
 
 
-　　　  　　 　　　  　　 　　  　 　　  　　 　　　  　　 　　  　<p align="center">
-  <details>
+<p align="center">
+  </details>
     <summary>other interests !</summary>
 
 
@@ -64,7 +64,7 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
 
 　　　  　　 　　　  　　 　　  　 　　  　　 　　　  　　 　　  　<p align="center">
   <details>
-    <summary> main fixations at the moment  ;  updated 3/9/26</summary>   homestuck , our flag means death , thrill me the musical and the office << ^_^   anndd duuhh ofc batman ,,   
+    <summary> main fixations at the moment  ;  updated 5/20/26</summary>   homestuck , our flag means death , thrill me the musical , hp & wicked  ! << ^_^   anndd duuhh ofc batman ,,   
                                                                                                                                                         </details>
 </p>
 
