@@ -143,8 +143,6 @@ silly people ... goofballs even, wackos  [ honestly if you're a fan of anything 
 people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
  　　 JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  i loove my spooky
-
-    RUERUERUE  CONNOR  MYFAV  HAIIAIIIFII i loveuo so much somuh letteuc egrant and whatev er but no i lov you os much  elphieto miglinda
     
  　　 TONY !!!!!!! TONY tony tony  . .zev zev zeevv sev sevvvv hiii boi  link to my rhett aha us i think :-P LOOOVE YOU im so happy to have yuo in my life  
 <img width="199" height="149" alt="image" src="https://github.com/user-attachments/assets/a9631fbf-400a-412d-ace2-c98b076f87d1" />    <--  WEEE ARE THEM ! /silly  rhett and stink .
