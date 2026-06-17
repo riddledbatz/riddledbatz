@@ -111,7 +111,9 @@ i am a huge HUUUUGEEEE batman / dc fan, ive been fixated on batman for 10+ years
 
 　　  　　 　　  　　 　　  　　 brief dni list   !!  
 
--  basic usual stuff ... [ racists , homophobic people , transphobes , ect ]    
+-  basic usual stuff ... [ racists , homophobic people , transphobes , ect ]
+
+- rue /  connor  / @cyberIife    , and overall exfriends ! ur all weird for ur behavior !!!!
 
 -  RIDDLEBAT 2022 FANS / SHIPPERS . INTERACT WITH VERY VERRRY EXTREME CAUTION or just dni at all !! . no hard feelings but erm ..ueah im uncomfy with riddlebat  .
 
