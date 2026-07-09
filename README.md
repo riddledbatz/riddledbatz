@@ -1,13 +1,13 @@
 
 
 
-this page is a lot less 'pretty' because it is my main ! and i try to give most info here :-) if you want to see prettier readme s , check out my alts !
+$\color{#39a039}{\textsf{this page is a lot less 'pretty' because it is my main ! and i try to give most info here :-) if you want to see prettier readme s , check out my alts !}}$
 
  　　  　　 　 　　  　　 　 　　  　　 ![486519095-7f89123e-b034-4b4f-9db7-2dad27b72d1d](https://github.com/user-attachments/assets/0cbaa340-41f9-441b-b6f1-23cd6883d295)
 
-　　    ![Untitled352_20260309104304](https://github.com/user-attachments/assets/9a3d4364-ab22-4783-a48e-199796c93133)
+ 　　  　　 ![Untitled352_20260309104304](https://github.com/user-attachments/assets/9a3d4364-ab22-4783-a48e-199796c93133)
       
-　　    　　　    　　　    　　　  ac :  nespolkey
+<p align="center">$\color{#39a039}{\textsf{ac :  nespolkey}}$</p>
 
                                     
 　　    　THEE PONY TOWN RIDDLER !   [<?>](https://github.com/title-town)  tee hee thank you whoever reccomendedme  to the account !
@@ -16,17 +16,17 @@ this page is a lot less 'pretty' because it is my main ! and i try to give most 
 
 
 
-　　  　　 　　 ᶜᵃˡˡ ᵐᵉ ᵉᵈʷᵃʳᵈ , ᵒʳ ᵐʳ ⁿʸᵍᵐᵃ  .   ᵖˡᵘʳᵃˡ  , ᵃⁿᵈ ᵈᵒ ⁿᵒᵗ ʳᵉᵃˡˡʸ ˢᵖᵉᵃᵏ ᵃᵇᵒᵘᵗ ⁱᵗ ᵐᵘᶜʰ ᵒᵘᵗˢⁱᵈᵉ ᵒᶠ ᶜˡᵒˢᵉ ᶠʳⁱᵉⁿᵈˢ . ᵇᵘᵗ ⁱ ᵃᵐ ᵒᵘʳ ʰᵒˢᵗ !  ᵗʰᵃᵗˢ ᵃˡˡ ʸᵒᵘ ⁿᵉᵉᵈ ᵗᵒ ᵏⁿᵒʷ
+<p align="center">$\color{#39a039}{\textsf{call me edward  or mr nygma  ,  we / i am plural  , all you need to know is i am the host !}}$</p>
 
-　　  　　 　　　  　　 　　  　　　 ask me for my socials  !!  
+<p align="center">$\color{#39a039}{\textsf{ask me for my socials  !!}}$</p>
                      
 　 　 　　  　
-𝗺𝗺𝘆𝘆 𝗯𝗲𝘀𝘁 𝗳𝗿𝗶𝗲𝗻𝗱 𝗲𝘃𝗲𝗿 𝗮𝗻𝗱 𝘁𝗵𝗲 𝗯𝗲𝘀𝘁 𝗽𝗮𝗿𝘁𝗻𝗲𝗿 𝗮 𝗯𝗼𝘆 𝗰𝗼𝘂𝗹𝗱 𝗮𝘀𝗸 𝗳𝗼𝗿 𝗵𝗲 𝗶𝘀 𝗺𝘆 𝘄𝗼𝗿𝗹𝗱 𝗮𝗻𝗱 𝗶 𝘁𝗲𝗻𝗱 𝘁𝗼 𝗯𝗿𝗶𝗻𝗴 𝗶𝘁 𝘂𝗽 𝗮 𝗹𝗼𝘁 .. ^_^"
+<p align="center">$\color{#ba5c00}{\textsf{𝗺𝗺𝘆𝘆 𝗯𝗲𝘀𝘁 𝗳𝗿𝗶𝗲𝗻𝗱 𝗲𝘃𝗲𝗿 𝗮𝗻𝗱 𝘁𝗵𝗲 𝗯𝗲𝘀𝘁 𝗽𝗮𝗿𝘁𝗻𝗲𝗿 𝗮 𝗯𝗼𝘆 𝗰𝗼𝘂𝗹𝗱 𝗮𝘀𝗸 𝗳𝗼𝗿 𝗵𝗲 𝗶𝘀 𝗺𝘆 𝘄𝗼𝗿𝗹𝗱 𝗮𝗻𝗱 𝗶 𝘁𝗲𝗻𝗱 𝘁𝗼 𝗯𝗿𝗶𝗻𝗴 𝗶𝘁 𝘂𝗽 𝗮 𝗹𝗼𝘁 .. }}$</p>
 
 　　  　　 　　　  　　  　　 　　  　　　 [husband](https://github.com/hauntedscarecrowzz)
 
          
-　　  　　 　　　　　𝗜 𝗟𝗢𝗩𝗘 𝗛𝗜𝗠 𝗪𝗜𝗧𝗛 𝗔𝗟𝗟 𝗠𝗬 𝗛𝗘𝗔𝗥𝗧 !! 𝗜 𝗟𝗢𝗩𝗘𝗧𝗛𝗘𝗠 𝗦𝗢  𝗠𝗨𝗖𝗛 𝗜 𝗟𝗢𝗩𝗘 𝗬𝗢𝗨 𝗘𝗘𝗥𝗜𝗘 ! ^_~
+<p align="center">$\color{#dd7c1b}{\textsf{𝗜 𝗟𝗢𝗩𝗘 𝗛𝗜𝗠 𝗪𝗜𝗧𝗛 𝗔𝗟𝗟 𝗠𝗬 𝗛𝗘𝗔𝗥𝗧 !! 𝗜 𝗟𝗢𝗩𝗘𝗧𝗛𝗘𝗠 𝗦𝗢  𝗠𝗨𝗖𝗛 𝗜 𝗟𝗢𝗩𝗘 𝗬𝗢𝗨 𝗘𝗘𝗥𝗜𝗘 !}}$</p>
 
 
 
