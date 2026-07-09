@@ -1,13 +1,13 @@
-wow edward finally updates his readme who cheered 
 
 
-t̲h̲i̲s̲ ̲p̲a̲g̲e̲ ̲i̲s̲ ̲a̲ ̲l̲o̲t̲ ̲l̲e̲s̲s̲ ̲'̲p̲r̲e̲t̲t̲y̲'̲ ̲b̲e̲c̲a̲u̲s̲e̲ ̲i̲t̲ ̲i̲s̲ ̲m̲y̲ ̲m̲a̲i̲n̲ ̲!̲ ̲a̲n̲d̲ ̲i̲ ̲t̲r̲y̲ ̲t̲o̲ ̲g̲i̲v̲e̲ ̲m̲o̲s̲t̲ ̲i̲n̲f̲o̲ ̲h̲e̲r̲e̲ ̲:̲-̲)̲ ̲i̲f̲ ̲y̲o̲u̲ ̲w̲a̲n̲t̲ ̲t̲o̲ ̲s̲e̲e̲ ̲p̲r̲e̲t̲t̲i̲e̲r̲ ̲r̲e̲a̲d̲m̲e̲ ̲s̲ ̲,̲ ̲c̲h̲e̲c̲k̲ ̲o̲u̲t̲ ̲m̲y̲ ̲a̲l̲t̲s̲ ̲!̲
+
+this page is a lot less 'pretty' because it is my main ! and i try to give most info here :-) if you want to see prettier readme s , check out my alts !
 
  　　  　　 　 　　  　　 　 　　  　　 ![486519095-7f89123e-b034-4b4f-9db7-2dad27b72d1d](https://github.com/user-attachments/assets/0cbaa340-41f9-441b-b6f1-23cd6883d295)
 
 　　    ![Untitled352_20260309104304](https://github.com/user-attachments/assets/9a3d4364-ab22-4783-a48e-199796c93133)
       
-      　 　　  　　 　 　　 　　  　　 　 　　 　　  　　 　ac :  nespolkey
+　　    　　　    　　　    　　　  ac :  nespolkey
 
                                     
 　　    　THEE PONY TOWN RIDDLER !   [<?>](https://github.com/title-town)  tee hee thank you whoever reccomendedme  to the account !
