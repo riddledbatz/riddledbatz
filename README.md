@@ -10,7 +10,9 @@ $\color{#39a039}{\textsf{this page is a lot less 'pretty' because it is my main 
 <p align="center">$\color{#39a039}{\textsf{ac :  nespolkey}}$</p>
 
                                     
-　　    　THEE PONY TOWN RIDDLER !   [<?>](https://github.com/title-town)  tee hee thank you whoever reccomendedme  to the account !
+　　    　　　    　　　    　　　 THEE PONY TOWN RIDDLER !   [>1](https://github.com/title-town)    [>2](https://github.com/pt-hall-of-media)
+       
+　　    　　　    　　　 tee hee thank you whoever reccomendedme  to the account !
 
 　 　　  　　 　　  　　　 　 [ata](https://riddledbatz.atabook.org/)　 　　  　[straw](https://amateurriddles.straw.page/)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
 
