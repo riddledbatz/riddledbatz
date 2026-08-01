@@ -52,3 +52,14 @@ $\color{#39a039}{\textsf{this page is a lot less 'pretty' because it is my main 
 　　  　　 　　  　　 　 　  　　　![tumblr_931d2af2dfe879bf3467af2d7d3b6277_abde4347_250](https://github.com/user-attachments/assets/cf788366-4daa-4aa9-a017-cfddd4520a26)
 
 　　  　　 　　  　　 　 　  　　　![tumblr_6e6d81a58af05b383c16e4cefa1c11b0_8ae23a8b_250](https://github.com/user-attachments/assets/c7830ba3-adce-4b23-ba65-540f155aafac)
+
+
+<div align="center">
+<details>
+  <summary>my party , my fav people ^_^  my lovelies ! #1ss !! hi pfo</summary>
+  <img width="440" height="273" alt="Screenshot_2026-07-30_at_2 38 08_PM" src="https://github.com/user-attachments/assets/ed7258be-06a2-470d-8538-56915e9b914c" />
+
+  <img width="468" height="167" alt="image-191" src="https://github.com/user-attachments/assets/20d0094c-cf60-4626-8f05-ac4225ac52bf" />
+
+</details>
+</div>
