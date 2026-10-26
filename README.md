@@ -24,7 +24,7 @@
 
 　　　　　　　　　　　　　<img width="100" height="18" alt="image" src="https://github.com/user-attachments/assets/e1a3aed6-5fc8-4d55-b9d5-df1a74889b1c" />
  
-
+　　　　　　 all art on profile by the most lovely  [@jGbeans30](https://github.com/jGbeans30) 
 
  <div align="center">
   <details>
@@ -55,5 +55,6 @@ dont let my user fool you . i do not like riddlebat.
 </div>
 
 </p>
+
 <br/><br><br>
 <img src="https://github.com/user-attachments/assets/a3ef5536-fba5-4c8e-ae1d-b4d43a3106d9" width="2000" alt="Logo">
