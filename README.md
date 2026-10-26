@@ -15,7 +15,7 @@ $\color{#39a039}{\textsf{this page is a lot less 'pretty' because it is my main 
        
 　　    　　　    　　　 tee hee thank you whoever reccomendedme  to the account !
 
-　 　　  　　 　　  　　　 　 [ata](https://riddledbatz.atabook.org/)　 　　  　[straw](https://amateurriddles.straw.page/)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
+　 　　  　　 　　  　　　 　 [ata](https://riddledbatz.atabook.org/)　 　　  　[straw](revamping. . .)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
 
 
 
