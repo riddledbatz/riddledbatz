@@ -61,5 +61,8 @@ $\color{#39a039}{\textsf{this page is a lot less 'pretty' because it is my main 
 
   <img width="468" height="167" alt="image-191" src="https://github.com/user-attachments/assets/20d0094c-cf60-4626-8f05-ac4225ac52bf" />
 
+  <img width="888" height="558" alt="image" src="https://github.com/user-attachments/assets/d75706b1-1dd5-4afc-8a29-a271ae719e5f" />
+
+
 </details>
 </div>
