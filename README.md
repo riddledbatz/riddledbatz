@@ -1,26 +1,29 @@
-<img src="https://github.com/user-attachments/assets/f42a2305-19e3-41fd-a608-093c3b28b8d7" width="2000" alt="Logo">
+<img src="https://github.com/user-attachments/assets/e6bc91da-6af2-4e2d-abaa-9347fbdd2c84" width="2000" alt="Logo">
 
 
-<img src="https://github.com/user-attachments/assets/35caf224-376d-4806-8f66-710594267569" align="left" width="350" alt="Alt text">
+<img src="https://github.com/user-attachments/assets/0e223d33-5333-40df-96cc-3b688c61b8e2" align="left" width="350" alt="Alt text">
 
 
-　 　　  　　  　　  　　 　 　　  　　 　 　　  　　 
+  　　 　 　　  　　 
 
-　　　　　　　　　　　　　　call me edward  or mr nygma
-　　　　　　　　　　　　　　　　we / i am plural
-　　　　　　　　　　　all you need to know is i am the host !　　
+　　　　　　　　　　　　　　call me e͟d͟w͟a͟r͟d͟  or m͟r͟ n͟y͟g͟m͟a͟
+              
+　　　　　　　　　　　　　　　　　　 i am plural
+                
+　　　　　　　　　　　　all you need to know is i am the h͟o͟s͟t͟ !　　
 
-　　　　　　　　　　　　　　　　crow  ♡   1 / 15 / 24
+　　　　　　　　　　　　　　　　[crow](https://github.com/hauntedscarecrowzz)  ♡   1 / 15 / 24
 
 
 
-　　　　　　　　　　　　　　　prns 　extra 　ata
+　　　　　　　　　　　　　　　[prns](https://pronouns.cc/@riddledbatz_) 　[extra](https://infosuch.straw.page/) 　[ata](https://riddledbatz.atabook.org/)
 
 　　　　　　　　　　　　　　　ask me for my socials  !!
  
-　　　　　　　　　　　　　　　　　　>1    >2    >3
+　　　　　　　　　　　　　　　　　　[>1](https://github.com/title-town)    [>2](https://github.com/pt-hall-of-media)    [>3](https://github.com/fans-town)
 
-　　　　　　　　　　　　　　　　　<img width="100" height="18" alt="0cbaa340-41f9-441b-b6f1-23cd6883d295" src="https://github.com/user-attachments/assets/f9615d7e-c9cf-4a90-b4b2-2d8e1aff00f7" /> 
+　　　　　　　　　　　　　　　　　<img width="100" height="18" alt="image" src="https://github.com/user-attachments/assets/e1a3aed6-5fc8-4d55-b9d5-df1a74889b1c" />
+ 
 
 
  <div align="center">
@@ -53,4 +56,4 @@ dont let my user fool you . i do not like riddlebat.
 
 </p>
 <br/><br><br>
-<img src="https://github.com/user-attachments/assets/293058af-b0ee-4f02-8deb-3fc6be2db202" width="2000" alt="Logo">
+<img src="https://github.com/user-attachments/assets/a3ef5536-fba5-4c8e-ae1d-b4d43a3106d9" width="2000" alt="Logo">
