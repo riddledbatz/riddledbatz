@@ -6,23 +6,23 @@
 
   　　 　 　　  　　 
 
-　　　　　　　　　　　　　　call me e͟d͟w͟a͟r͟d͟  or m͟r͟ n͟y͟g͟m͟a͟
+　　　　　　　　　　call me e͟d͟w͟a͟r͟d͟  or m͟r͟ n͟y͟g͟m͟a͟
               
-　　　　　　　　　　　　　　　　　　 i am plural
+　　　　　　　　　　　　　　 i am plural
                 
-　　　　　　　　　　　　all you need to know is i am the h͟o͟s͟t͟ !　　
+　　　　　　　　all you need to know is i am the h͟o͟s͟t͟ !　　
 
-　　　　　　　　　　　　　　　　[crow](https://github.com/hauntedscarecrowzz)  ♡   1 / 15 / 24
+　　　　　　　　　　　　[crow](https://github.com/hauntedscarecrowzz)  ♡   1 / 15 / 24
 
 
 
-　　　　　　　　　　　　　　　[prns](https://pronouns.cc/@riddledbatz_) 　[extra](https://infosuch.straw.page/) 　[ata](https://riddledbatz.atabook.org/)
+　　　　　　　　　　　[prns](https://pronouns.cc/@riddledbatz_) 　[extra](https://infosuch.straw.page/) 　[ata](https://riddledbatz.atabook.org/)
 
-　　　　　　　　　　　　　　　ask me for my socials  !!
+　　　　　　　　　　　ask me for my socials  !!
  
-　　　　　　　　　　　　　　　　　　[>1](https://github.com/title-town)    [>2](https://github.com/pt-hall-of-media)    [>3](https://github.com/fans-town)
+　　　　　　　　　　　　　　[>1](https://github.com/title-town)    [>2](https://github.com/pt-hall-of-media)    [>3](https://github.com/fans-town)
 
-　　　　　　　　　　　　　　　　　<img width="100" height="18" alt="image" src="https://github.com/user-attachments/assets/e1a3aed6-5fc8-4d55-b9d5-df1a74889b1c" />
+　　　　　　　　　　　　　<img width="100" height="18" alt="image" src="https://github.com/user-attachments/assets/e1a3aed6-5fc8-4d55-b9d5-df1a74889b1c" />
  
 
 
