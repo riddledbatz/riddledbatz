@@ -4,7 +4,7 @@
 <img src="https://github.com/user-attachments/assets/0e223d33-5333-40df-96cc-3b688c61b8e2" align="left" width="350" alt="Alt text">
 
 
-  　　 　 　　  　　 
+  　　 　 　　  ![](https://komarev.com/ghpvc/?username=riddledbatz&color=7c9528&label=amateur%20riddles%2008&base=467)
 
 　　　　　　　　　　call me e͟d͟w͟a͟r͟d͟  or m͟r͟ n͟y͟g͟m͟a͟
               
